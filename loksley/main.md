@@ -14,4 +14,4 @@ Website [Link] bei uns im Raum 1.123 oder auf dem Campus über Plakate mitgeteil
 Nehmt bitte bis zum Anfang der kommenden Vorlesungszeit an der Umfrage teil, damit wir pünktlich zum
 Sommersemester-Start die Spiele beschaffen können.
 
-Küsschen aufs gaNüsschen
+Küsschen aufs Nüsschen
